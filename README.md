@@ -51,3 +51,6 @@
 |  [ 应部分贴友的不满，特此来开一贴。 害，本来只想在小p ](./6543073883/index.html) |  |   
 |  [ 这可能是缘吧年龄最接近的兄妹(姐弟)恋吧。。 ](./6546496899/index.html) |  |   
 |  [ 计划外帖子 ](./OutOfPlan/index.html) |  | 
+
+## 访问统计
+![访问统计](https://count.getloli.com/@iamfromchangsha?name=iamfromchangsha&theme=miku&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto)

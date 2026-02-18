@@ -53,4 +53,5 @@
 |  [ 计划外帖子 ](./OutOfPlan/index.html) |  | 
 
 ## 访问统计
-![访问统计](https://count.getloli.com/@iamfromchangsha?name=iamfromchangsha&theme=miku&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto)
+![访问统计](http://moe.xn--estn41aqtae4v.xyz/@YuanZhiKongBaiduTiebaBackup?name=YuanZhiKongBaiduTiebaBackup&theme=gelbooru-h&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto)
+
